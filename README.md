@@ -1,2 +1,3 @@
 # StartedAt5oct
-i shall repond with full power
+i started at 05 OCT 2026
+
